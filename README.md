@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on nothing for now!
 - 📫 How to reach me 
 - Discord: @abr.#1111 
-- Instagram: <_alexbutlerruiz_>
-- btw remove the '<>' it's just so the text doesn't go wierd!
+- Instagram: -alexbutlerruiz-
+- btw it's not actually the hyphone it's supposed to be an _ 
 - Snapchat: a1ex_br
 
 <!---
