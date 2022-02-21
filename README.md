@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @alexbutlerruiz
 - 👀 I’m interested in roblox developing
-- 🌱 I’m currently learning lua
-- 💞️ I’m looking to collaborate on nothing for now!
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me 
 - Discord: @abr.#1111 
 - Instagram: -alexbutlerruiz-
